@@ -1,4 +1,2 @@
-addy 🤷🏼‍♀️
-.. *she/her*
-idk what to put here. 
-I'm talking to someone/people.
+I'm not looking forward on talking to u. 
+I'm desperate btw <3
